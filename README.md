@@ -1,0 +1,2 @@
+# ronal
+Dear Developer PUBG,  My Account Details:  ID:5276495185  Nickname:LEAK・TOKARRAK  Level:36  In this case I report the problem to my account which has been banned by you, I strongly object if my account is banned due to no reason.  If my account has made a mistake then give me a reason and proof if my account has violated the rules that have been applied  For the sake of convenience and cooperation we as PUBG players are very disappointed and reluctant to see our account banned.  happy if this case is continued and resolved carefully  I will wait for the good news
